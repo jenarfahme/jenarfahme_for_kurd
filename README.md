@@ -1,0 +1,2 @@
+# jenarfahme_for_kurd
+Icrack_your_device
